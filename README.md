@@ -1,3 +1,3 @@
-- 👋 Hi, I’m Rajkumar rathod
+- 👋 Hi Folks, I’m Rajkumar rathod
 - 👀 I’m enthus to learn
 - 📫 How to reach me rajkumarrathod414@gmail.com
